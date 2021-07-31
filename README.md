@@ -38,4 +38,3 @@
 </div>
 
 - 🌐 www.c3x.com.br
-- 📸 Instagram: @celino3x
